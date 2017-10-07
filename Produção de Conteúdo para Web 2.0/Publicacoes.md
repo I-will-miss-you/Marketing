@@ -24,5 +24,8 @@
 - [Português](https://comunidade.rockcontent.com/portugues/)
 
 ## Revisão para Web
+- [[Material Gratuito] Guia de revisão de texto: como garantir a qualidade de um conteúdo?](https://comunidade.rockcontent.com/guia-de-revisao-de-texto/)
+- [Revisão de Conteúdo](https://comunidade.rockcontent.com/revisao-de-conteudo/)
 
 ## Case de Sucesso
+- [Como fazer uma conclusão: aprenda de uma vez por todas! [BÔNUS: INFOGRÁFICO]](https://comunidade.rockcontent.com/como-fazer-uma-conclusao/)
